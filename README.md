@@ -164,7 +164,7 @@ Generosity replaces selfish wants with purpose.
 ---
 
 # ✨ Final Thoughts  
-![Happiness and Fulfillment](https://source.unsplash.com/800x400/?happiness,fulfillment)  
+![Happiness and Fulfillment](https://images.unsplash.com/photo-1506784365847-bbad939e9335) 
 
 Desires will always exist — they’re part of being human.  
 But when you master them, life becomes peaceful, joyful, and fulfilling.  
