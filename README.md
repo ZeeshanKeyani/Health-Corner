@@ -9,7 +9,7 @@ Here are 10 proven, practical ways to take control of your desires and focus on 
 ---
 
 ## 1. 🧠 Understand the Nature of Your Desires  
-![Understand Desires](https://source.unsplash.com/800x400/?thinking,mindset)  
+![Understand Desires](https://images.unsplash.com/photo-1522202176988-66273c2fd55f)  
 
 Not all desires are bad — some push us toward growth, while others trap us in endless cravings.  
 
@@ -24,7 +24,7 @@ Not all desires are bad — some push us toward growth, while others trap us in 
 ---
 
 ## 2. 🧘 Practice Daily Mindfulness  
-![Mindfulness Meditation](https://source.unsplash.com/800x400/?meditation,calm)  
+![Mindfulness Meditation](https://images.unsplash.com/photo-1506126613408-eca07ce68773)  
 
 Mindfulness teaches you to pause before reacting to impulses.  
 
@@ -41,7 +41,7 @@ Mindfulness teaches you to pause before reacting to impulses.
 ---
 
 ## 3. 🎯 Set Clear Life Goals  
-![Setting Goals](https://source.unsplash.com/800x400/?goals,planning)  
+![Setting Goals](https://images.unsplash.com/photo-1506784983877-45594efa4cbe)  
 
 Without direction, desires scatter your focus.  
 
@@ -56,7 +56,7 @@ Without direction, desires scatter your focus.
 ---
 
 ## 4. 💪 Strengthen Your Self-Discipline  
-![Self Discipline](https://source.unsplash.com/800x400/?discipline,strength)  
+![Self Discipline](https://images.unsplash.com/photo-1507537297725-24a1c029d3ca)
 
 Discipline is the muscle that helps you say *no* to unnecessary cravings.  
 
@@ -71,7 +71,7 @@ Discipline is the muscle that helps you say *no* to unnecessary cravings.
 ---
 
 ## 5. 🏡 Embrace Minimalism  
-![Minimalism Lifestyle](https://source.unsplash.com/800x400/?minimalism,declutter)  
+![Minimalism Lifestyle](https://images.unsplash.com/photo-1505691938895-1758d7feb511)
 
 Minimalism means valuing *quality over quantity*.  
 
@@ -86,7 +86,7 @@ Minimalism means valuing *quality over quantity*.
 ---
 
 ## 6. 🙏 Cultivate Gratitude  
-![Gratitude Journal](https://source.unsplash.com/800x400/?gratitude,journal)  
+![Gratitude Journal](https://images.unsplash.com/photo-1517504734587-46c59c16b6d1) 
 
 Gratitude shifts focus from *what’s missing* to *what’s already here*.  
 
@@ -101,7 +101,7 @@ Gratitude shifts focus from *what’s missing* to *what’s already here*.
 ---
 
 ## 7. 🤝 Build Meaningful Relationships  
-![Friendship and Connection](https://source.unsplash.com/800x400/?friends,relationships)  
+![Friendship and Connection](https://images.unsplash.com/photo-1500648767791-00dcc994a43e) 
 
 Emotional fulfillment comes from people, not possessions.  
 
@@ -116,7 +116,8 @@ Emotional fulfillment comes from people, not possessions.
 ---
 
 ## 8. 🥗 Develop Healthy Lifestyle Habits  
-![Healthy Lifestyle](https://source.unsplash.com/800x400/?healthy,lifestyle)  
+![Healthy Lifestyle](https://images.unsplash.com/photo-1514996937319-344454492b37) 
+
 
 Unhealthy habits fuel many desires.  
 
@@ -132,7 +133,8 @@ Unhealthy habits fuel many desires.
 ---
 
 ## 9. 🌿 Practice Contentment  
-![Contentment and Peace](https://source.unsplash.com/800x400/?peace,contentment)  
+![Contentment and Peace](https://images.unsplash.com/photo-1507525428034-b723cf961d3e)
+
 
 Contentment is peace with what you have, while still striving for growth.  
 
@@ -147,7 +149,7 @@ Contentment is peace with what you have, while still striving for growth.
 ---
 
 ## 10. ❤️ Give Back to Others  
-![Helping Others](https://source.unsplash.com/800x400/?volunteer,helping)  
+![Helping Others](https://images.unsplash.com/photo-1524504388940-b1c1722653e1)
 
 Generosity replaces selfish wants with purpose.  
 
